@@ -11,7 +11,7 @@
 <br>
 ・22 ✧ he/him ✧ eng・
 <br>
-࣪˖ ⊹ ┈┈┈┈┈┈┈┈┈ㅤㅤ┈┈┈┈┈┈┈┈┈ ⊹ ࣪ ˖
+࣪˖ ⊹ ┈┈┈┈┈┈┈┈┈ㅤ.ೀㅤ┈┈┈┈┈┈┈┈┈ ⊹ ࣪ ˖
 <br>
 ⊹ ࣪ 𓂃. <a href=https://github.com/euphoricscars>【 Main 】</a> ࣪ ࣪ʚଓ་༘࿐
 <br>
